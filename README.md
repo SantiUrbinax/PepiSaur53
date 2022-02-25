@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PepiSaur53
+- 👀 Im a systems engineering student
+- 🌱 Im a nice person :D
+- 💞️ I like to read about Greek mythology
+- 📫 I want to be the next Mark Zuckerberg
+- 👀 Have a nice day :D
